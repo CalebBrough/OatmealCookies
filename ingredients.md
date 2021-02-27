@@ -1,0 +1,10 @@
+1) 1 cup butter, softened,
+2) 1 cup white sugar,
+3) 1 cup packed brown sugar,
+4) 2 eggs,
+5) 1 teaspoon vanilla extract,
+6) 2 cups all-purpose flour,
+7) 1 teaspoon baking soda,
+8) 1 teaspoon salt,
+9) 1 ½ teaspoons ground cinnamon,
+10) 3 cups quick cooking oats.
